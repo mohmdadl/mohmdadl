@@ -1,5 +1,5 @@
 
-<img width="250" align="right" src="https://c.tenor.com/_DOBjnGspYAAAAAM/HayG.gif">
+<img width="250" align="right" src="https://tenor.com/HayG.gif">
 
 <h3 align="center">
   Welcome to Mohmed Adel's profile!
