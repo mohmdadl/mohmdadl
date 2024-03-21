@@ -1,5 +1,5 @@
 
-<img width="250" align="right" src="https://media.tenor.com/8ZpbRdXPnd4AAAAM/programming-crazy.gif">
+<img width="250" align="right" src="https://media.tenor.com/8ZpbRdXPnd4AAAAM/">
 
 <h3 align="center">
   Welcome to Mohmed Adel's profile!
