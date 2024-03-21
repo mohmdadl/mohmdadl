@@ -1,5 +1,5 @@
 
-<img width="250" align="right" src="[https://media.tenor.com/8ZpbRdXPnd4AAAAM/](https://tenor.com/view/xero-code-code-xer0-code_xer0-code-xero-gif-24040429)">
+<img width="250" align="right" src="https://tenor.com/view/xero-code-code-xer0-code_xer0-code-xero-gif-24040429">
 
 <h3 align="center">
   Welcome to Mohmed Adel's profile!
